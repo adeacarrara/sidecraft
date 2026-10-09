@@ -1,2 +1,0 @@
-# sidecraft
-creative agency 
